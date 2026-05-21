@@ -1,5 +1,5 @@
 # Generated Outputs — MuscleBlaze Biozyme Performance Whey
-
+<img width="1024" height="1536" alt="ChatGPT Image May 21, 2026, 11_55_24 PM" src="https://github.com/user-attachments/assets/12ba0977-abb7-4dc8-bb9c-e58eef6cf463" />
 ---
 
 # OBJECTIVE 1 — PREMIUM UGC-STYLE AD SCRIPTS
