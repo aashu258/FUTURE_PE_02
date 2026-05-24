@@ -1,3 +1,5 @@
+<img width="1024" height="1536" alt="ChatGPT Image May 22, 2026, 12_16_01 AM" src="https://github.com/user-attachments/assets/821a5046-9192-4c48-8ffd-12ccc3aba90b" />
+
 ━━━━━━━━━━━━━━━━━━━━━━━
 OBJECTIVE 1 — Generate short UGC-style ad scripts
 ━━━━━━━━━━━━━━━━━━━━━━━
